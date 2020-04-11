@@ -1,0 +1,2 @@
+# Hair-secrets-for-Girls
+At this time, everyone wants to have a perfect hair style look. Hair style adds beauty to human personality. Always choose hair cut which is best suits your personality type. Whether you want to get your dress, your shoes or hair cut, these all must be matched with your personality. Otherwise you not be able to get perfect look. We have introduced beauty secrets for the people like you, who want to know some hair secrets https://www.beauty-secrets.us/. 
